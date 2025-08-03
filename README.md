@@ -50,7 +50,7 @@ Developers: Help build the AI engine
 Local Experts: Share insights about rural opportunities
 Educators: Advise on student needs
 Designers: Create intuitive interfaces
-Reach out: your-contact@example.com
+Reach out: rastogiujjwal58@gmail.com
 
 📜 Open Invitation
 This project thrives on collaboration. Under the MIT License, you're free to:
